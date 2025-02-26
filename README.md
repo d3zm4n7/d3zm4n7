@@ -19,7 +19,7 @@ I'm currently studying **Python, HTML, CSS, JavaScript, SQL, VBA**, software dev
 - Researching **DAW evolution & impact on the music industry** 🎼
 - Creating my personal **brand identity & business strategy** 🚀
 
-## 💋 Contact Me
+## 📞 Contact Me
 📧 Email: dezxplay@gmail.com  
 📱 Phone: +372 56****58
 
